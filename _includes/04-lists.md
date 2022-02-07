@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+Things that i love:
+1. makeup
+2. music
+* songwriting
+* concerts
+* creative evenings
+3. travels
